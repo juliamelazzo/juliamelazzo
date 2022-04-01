@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @juliamelazzo
-- 👀 I’m interested in psychology
+- 👀 I’m interested in psychology, books, movies, new languages, translation
 - 🌱 I’m currently learning psychology
 - 💞️ I’m looking to collaborate on group assingments, intership
 - 📫 How to reach me on linkedIn: @juliamelazzo
